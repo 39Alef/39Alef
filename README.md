@@ -5,4 +5,5 @@
 
 ✨️Meu nome é Alef, tenho 16 anos e pretendo trabalhar com programação, amo música e animais, principalmente cachorros 🐶✨️
 
-**Você pode entrar em contato comigo 
+**Você pode entrar em contato comigo em**
+rodrigues.alef@escola.pr.gov.br 
